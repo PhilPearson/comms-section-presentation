@@ -2,6 +2,8 @@
 
 **(Start with confidence and energy)**
 
+---
+
 ## **Part 1: The Hook (~45 seconds)**
 
 - Two teams
@@ -20,9 +22,13 @@
 
 Dozens of people, multiple organisations, all needing to work as one and all coordinating through the radio
 
+---
+
 ## **Part 2: The Mission (~30 seconds)**
 
 **We ensure that everyone can talk to each other, no matter the situation.**
+
+---
 
 ## **Part 3: The "What We Do" (~90 seconds)**
 
@@ -31,6 +37,8 @@ Dozens of people, multiple organisations, all needing to work as one and all coo
 - **we operate the network.**
 
 Comms members can still go out into the field with rescue teams
+
+---
 
 ## **Part 4: The "Why It Matters" & The People (~60 seconds)**
 
@@ -45,9 +53,13 @@ learn new skills:
 all training provided
 no particular skills are required although neat handwriting is pretty handy
 
+---
+
 ## **Part 5: Questions (~30 seconds)**
 
 I'm happy to answer any questions you have about the Comms Section right now.
+
+---
 
 ## **Part 6: The Invitation & Close (~30 seconds)**
 
